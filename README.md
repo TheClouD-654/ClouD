@@ -1,5 +1,5 @@
 # 💫 About Me:
-UI/UX designer<br>Studing at SRM KTR college <br>Batch'29
+Figuring out<br>Studing at SRM KTR college <br>Batch'29
 
 
 ## 🌐 Socials:
